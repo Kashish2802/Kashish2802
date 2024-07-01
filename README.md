@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kashish
+- 👋 Hi, I’m Kashish Rawat
 - 📑  I'm an Electronics and Communication Engineering Student
 - 👀 I’m interested in learning new thing.
 - 📫 How to reach me- Email me [kasaloni2802@gmail.com]
